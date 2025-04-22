@@ -1,1 +1,1 @@
-# projekt3
+# Šimon Petráček
